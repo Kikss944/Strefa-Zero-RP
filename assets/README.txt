@@ -1,0 +1,1 @@
+Miejsce na logo, tła i inne grafiki Strefa Zero RP.
